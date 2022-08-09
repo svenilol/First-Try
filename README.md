@@ -1,6 +1,6 @@
 # HI MY NAME IS CARMEN WINSTON
 
-**AHHHHHHHHH**  ![OGC](https://user-images.githubusercontent.com/110892330/183607840-a3def349-9155-4602-a353-19fc99ba53c9.gif)
+**AHHHHHHHHH**  
 
 [https://www.netflix.com](https://www.youtube.com/watch?v=xm3YgoEiEDc)                
 [FREE V-BUCKS](https://www.youtube.com/watch?v=0iCtC-EOzEo)
