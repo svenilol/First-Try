@@ -1,6 +1,6 @@
 # HI MY NAME IS CARMEN WINSTON
 
-AHHHHHHHHH  ![OGC](https://user-images.githubusercontent.com/110892330/183607840-a3def349-9155-4602-a353-19fc99ba53c9.gif)
+**AHHHHHHHHH**  ![OGC](https://user-images.githubusercontent.com/110892330/183607840-a3def349-9155-4602-a353-19fc99ba53c9.gif)
 
 [https://www.netflix.com](https://www.youtube.com/watch?v=xm3YgoEiEDc)
 
